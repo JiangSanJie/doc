@@ -1,6 +1,14 @@
 # 内容下载
 
 
+- **唐诗三百首**[📥 下载](https://www.123912.com/s/v6GHvd-BpPsv)
+
+- **宋词三百首**[📥 下载](https://www.123912.com/s/v6GHvd-JpPsv)
+
+- **诗经**[📥 下载](https://www.123912.com/s/v6GHvd-IpPsv)
+
+- **楚辞**[📥 下载](https://www.123912.com/s/v6GHvd-MpPsv)
+
 - **花间集**[📥 下载](https://www.123912.com/s/v6GHvd-h4Psv)
 
 - **南唐二主**[📥 下载](https://www.123912.com/s/v6GHvd-H4Psv)
